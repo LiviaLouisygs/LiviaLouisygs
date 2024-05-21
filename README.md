@@ -7,6 +7,5 @@ Meu nome é Livia Louisy
 - Tenho 17 anos
 
   ## Você pode entrar em contato comigo 📫
-
-louisylivia55@gmail.com
+- louisylivia55@gmail.com
   
