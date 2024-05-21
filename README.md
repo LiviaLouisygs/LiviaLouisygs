@@ -9,4 +9,4 @@ Meu nome é Livia Louisy
   ## Você pode entrar em contato comigo 📫
 - louisylivia55@gmail.com
 
-![](https://c.tenor.com/D5nQKXfnSP0AAAAd/tenor.gif)
+![(https://c.tenor.com/D5nQKXfnSP0AAAAd/tenor.gif)]
